@@ -270,8 +270,7 @@ Nicolas Alencar de Oliveira
 
 Fonte:
 
-Observatório da Cesta Básica  
-Pontifícia Universidade Católica de Campinas (PUC Campinas)
+Observatório Pontifícia Universidade Católica de Campinas (PUC Campinas)
 
 Uso:
 
